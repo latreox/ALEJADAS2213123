@@ -9,3 +9,4 @@ samuel.vinicius.silva@escola.pr.gov.br
 
 @alurastartestudante
 
+![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExcDVjZmt2ZTR3amlzaWkwcnQyYmM4YzcxMzdzM3MwamsyNWhianRwOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/bbshzgyFQDqPHXBo4c/giphy.webp)
